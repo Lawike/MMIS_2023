@@ -49,25 +49,3 @@ Notre surface est définie dans R2 et est transformée en des points dans R3 :
 
 
 
-
-- Je doute de la sincérité de Mr Karim.
-  
-  - Demande des diamants dés notre première rencontre
-  
-  - N'a rien développé pour la bien commun du village
-
-- Nous vivons dans une communauté très soudée
-
-- Tentative de complot mettant en péril l'équilibre des forces du serveur. Guerre civile possible
-
-- Expedition de plongée. avec mort par noyade.
-  
-  - Karim ne doutant pas de son skill dans le jeu : Hamza a explicitement dis que son client possède un faible itellect
-  
-  - Demande de l'aide pour marcher mais bon il est trop skill
-  
-  - Coupure du stream pour dissimuler les preuves : Préméditation
-
-
-
-
